@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LAlmehlisy
 - 👀 I’m interested in medical microbiology, medical Research, DNA&RNA extraction and isolation,Bioinformatics, immunology,Bacteriology,Antibiotics Resistance. 
 - 🌱 I’m currently learning bioinfomatics, Open Life sciencess 
-- 💞️ I’m looking to collaborate on OLS Team with Dr.Batool and Dr.Mai. 
-- 📫 How to reach me Twitter:LALMehlisy - Email: Leena.AL-mehlisy@windowslive.com
+- 💞️ I’m looking to collaborate on OLS Team with Dr.Batool, Dr.Mai and Ms.Bérénice Batut.
+- 📫 How to reach me Twitter: LALMehlisy, Email: Leena.AL-mehlisy@windowslive.com.
